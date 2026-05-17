@@ -1,4 +1,4 @@
-# 
+# advanced Adobe Photoshop PC版 扩展 是最佳 Adobe Photoshop PC版 扩展，集成 RAW文件支持 和 路径编辑。安全、可靠、优化，性能最大化。
 
 
 
